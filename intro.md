@@ -1,0 +1,1 @@
+Gold Experience Requiem é capaz de lançar uma pedra rápido o suficiente para que ela deixe de ser visível para o olho humano, e tenha o poder o suficiente por trás dela para penetrar através de uma mão e destruir parte de um prédio.
